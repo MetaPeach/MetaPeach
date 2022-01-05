@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @MetaPeach
+- 👀 I’m interested in NFT
+- 🌱 I’m currently exploring the world of cryptocurrencies and cryptoart
+- 💞️ I’m a beginner and looking to collaborate on new interesting projects aimed to learn more and work in this field 
